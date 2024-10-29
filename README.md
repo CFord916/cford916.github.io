@@ -10,7 +10,7 @@ I pressed the plus icon, I selected the repository I wanted. I then selected the
 2. I spend a great deal of time watching Ms. Rachel with my 20 month old and visitng colleges with my teenager.
 3. I enjoy cooking and finding ways to make healthy food taste great.   <br>
 ### _Websites I Reccomend_
-1. - [Big Think] (www.bigthink.com)-This website is great for people who want to learn about a multitude of topics but from the leaders in that field.
-2. - [ Like Stories Of Old] (https://www.youtube.com/@LikeStoriesofOld)-This one is a youtube channel that does deep dives and media analysis into films.
+1. - [Big Think] (www.bigthink.com) - This website is great for people who want to learn about a multitude of topics but from the leaders in that field.
+2. - [ Like Stories Of Old] (https://www.youtube.com/@LikeStoriesofOld) - This one is a youtube channel that does deep dives and media analysis into films.
 
 
